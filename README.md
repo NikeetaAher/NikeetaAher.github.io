@@ -2,8 +2,8 @@
 
 ### Education
 
-MBA(IT) 
-Bachelor of Phyiotherapy (BPTh)
+MBA(IT) @SICSR
+Bachelor of Physiotherapy (BPTh) @Tilak Maharashtra University
 
 ### Work Experience
 
